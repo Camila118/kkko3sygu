@@ -1,1 +1,0 @@
-# kkko3sygu
